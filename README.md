@@ -1,4 +1,4 @@
-# 💫 About Me: Sup Chat 10subs aayusin na to
+# 💫 About Me: Sup Chat 10 subs aayusin na to
 
 
 ## 🌐 Socials:
