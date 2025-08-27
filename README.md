@@ -1,4 +1,4 @@
-# 👁️🫦👁️ Sup Chat 10 subs aayusin na to
+# 👁️👅👁️ Sup Chat 10 subs aayusin na to
 
 
 ## 🌐 Socials:
