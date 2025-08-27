@@ -1,7 +1,7 @@
 # 👁️👅👁️ Sup Chat 10 subs aayusin na to
 
 
-## 🌐 Socials:
+# 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/sxyyyyyy.__) [![email](https://img.shields.io/badge/Email-D14836?logo=gmail&logoColor=white)](mailto:jayceemarkong07@gmail.com)
 <br>
 ![W Sigma GIF by STRAPPED!](https://github.com/user-attachments/assets/dd451ca7-0b48-4500-86cc-4a4980ebfa44)
