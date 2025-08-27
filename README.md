@@ -20,4 +20,5 @@
 ---
 [![](https://visitcount.itsvg.in/api?id=Jseebidi&icon=0&color=0)](https://visitcount.itsvg.in)
 
+![Cracking Up Lol GIF by STRAPPED!](https://github.com/user-attachments/assets/756b6ce3-356b-4af1-b18e-8f960b8bd240)
 
