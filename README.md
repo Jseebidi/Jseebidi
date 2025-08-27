@@ -15,7 +15,6 @@
 ![](https://github-readme-stats.vercel.app/api?username=scy&theme=nightowl&hide_border=false&include_all_commits=true&count_private=true)<br/>
 ![](https://nirzak-streak-stats.vercel.app/?user=scy&theme=nightowl&hide_border=false)<br/>
 ![](https://github-readme-stats.vercel.app/api/top-langs/?username=scy&theme=nightowl&hide_border=false&include_all_commits=true&count_private=true&layout=compact)
-
 <br>
 <img width="216" height="214" alt="monkey-thinking" src="https://github.com/user-attachments/assets/20ec4dea-7987-49af-b189-70fc41bc58b6" />
 </br>
